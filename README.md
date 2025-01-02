@@ -7,6 +7,7 @@ Skills: Proficient in SQL, with experience in querying databases, analyzing tren
 Interests: Passionate about data visualization, predictive analytics, and optimizing decision-making processes through data.
 
 Currently Learning: Advanced SQL techniques, Python for data analysis, and Tableau for interactive dashboards.
+
 💡 What I Bring
 
 A sharp eye for detail and a knack for identifying patterns that drive results.
