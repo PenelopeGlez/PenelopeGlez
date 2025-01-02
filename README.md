@@ -19,6 +19,7 @@ A collaborative mindset with a commitment to continuous growth and learning.
 I'm always open to discussing exciting opportunities or collaborating on impactful projects.
 
 📫 Reach me at: penelopeg3105@gmail.com
+              
                 www.linkedin.com/in/penelope-gonzalez-gomez-0505032bb 
                 
 Take a look around my projects to see how I can contribute to your team!
